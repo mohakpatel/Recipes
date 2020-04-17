@@ -21,7 +21,7 @@
 #### Roasting baingan
 - Preheat oven to 450&deg;F
 - Evenly poke holes on the eggplant using a fork with a spacing of about 1 to 2 inches.
-- Slit the baigan along its length at 3 to r spots. Fill it with garlic cloves. 
+- Slit the baigan along its length at 3 to 4 spots. Fill it with garlic cloves. 
 - Properly oil the outer surface of the baigan. Oiling the skin makes it easier to peel off the skin later. 
 - Put the baigan on a tray in oven for 50 minutes. Flip it once at the half way mark
 - At the end, broil the baigan for 10 minutes. 
